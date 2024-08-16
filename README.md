@@ -1,2 +1,2 @@
-# it-goes-on-and-on
+# dynamite
 Taio Cruz's most popular hit ever :)
